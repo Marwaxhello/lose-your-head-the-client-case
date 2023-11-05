@@ -16,7 +16,7 @@
 
 ## 💻👨🏻‍💻👨🏼‍💻 Gebruik
 
-Deze website kan je gebruiken om te chatten met elkaar.
+Deze website kan je gebruiken om jou ideeen te schetsen.
 
 ## 👩🏼‍💻👩🏾‍💻👨🏻‍💻👨🏼‍💻 Kenmerken
 
